@@ -1,2 +1,2 @@
 # Hello-World
-Initialize this repository with a README.
+Hello Hansue, long time no see u. I miss U much.
